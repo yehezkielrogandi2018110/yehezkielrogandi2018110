@@ -1,4 +1,7 @@
-### My Name Yehezkiel Rogandi Lorenzo Sibarani ![gaara](https://user-images.githubusercontent.com/115450158/205421337-efab1152-053e-4c99-8267-df0e6e47a838.jpg)
+### My Name Yehezkiel Rogandi Lorenzo Sibarani 
+![gaara](https://user-images.githubusercontent.com/115450158/205421337-efab1152-053e-4c99-8267-df0e6e47a838.jpg)
+![gaara](https://user-images.githubusercontent.com/115450158/205421405-ba5d98f9-d7bb-4458-af6d-07a24061546a.gif)
+
 
 
 <!--

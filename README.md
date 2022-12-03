@@ -2,7 +2,7 @@
 
 <!--
 **yehezkielrogandi2018110/yehezkielrogandi2018110** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+My Name Yehezkiel Rogandi Lorenzo
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
